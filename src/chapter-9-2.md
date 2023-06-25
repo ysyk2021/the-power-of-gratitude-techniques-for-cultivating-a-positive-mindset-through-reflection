@@ -1,5 +1,4 @@
-Chapter 9: Ethical Considerations in Gratitude Practice: Balancing Personal and Interpersonal Interests
-=======================================================================================================
+# Balancing Personal and Interpersonal Interests
 
 In this chapter, we will discuss ethical considerations in gratitude practice, including the need to balance personal and interpersonal interests.
 

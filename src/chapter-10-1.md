@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Recap of Key Points
-===========================================
+# Recap of Key Points
 
 In this book, we have explored the power of gratitude and its ability to cultivate a positive mindset through reflection. Here is a recap of the key points discussed throughout the book:
 

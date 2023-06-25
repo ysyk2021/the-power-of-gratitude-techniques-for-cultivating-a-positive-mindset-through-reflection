@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Obstacles to Gratitude Practice: Common Obstacles to Gratitude Practice
-=============================================================================================
+# Common Obstacles to Gratitude Practice
 
 In this chapter, we will explore common obstacles to gratitude practice and how to overcome them. By addressing these obstacles, individuals can develop a consistent and fulfilling gratitude practice.
 

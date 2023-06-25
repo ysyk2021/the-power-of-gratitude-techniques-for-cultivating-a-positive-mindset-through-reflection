@@ -1,5 +1,4 @@
-Chapter 2: Understanding Gratitude: Definition of Gratitude
-===========================================================
+# Definition of Gratitude
 
 In this chapter, we will explore the definition of gratitude and what it means to cultivate a grateful attitude.
 

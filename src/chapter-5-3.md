@@ -1,5 +1,4 @@
-Chapter 5: Maximizing Your Happiness through Gratitude: Strengthening Personal Growth and Self-esteem
-=====================================================================================================
+# Strengthening Personal Growth and Self-esteem
 
 In this chapter, we will explore how gratitude practice can maximize happiness by strengthening personal growth and self-esteem.
 

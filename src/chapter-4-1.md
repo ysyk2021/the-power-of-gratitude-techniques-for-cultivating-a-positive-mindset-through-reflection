@@ -1,5 +1,4 @@
-Chapter 4: Techniques for Cultivating Gratitude through Reflection: Keeping a Gratitude Journal
-===============================================================================================
+# Keeping a Gratitude Journal
 
 In this chapter, we will explore one of the most effective techniques for cultivating gratitude through reflection: keeping a gratitude journal. By regularly writing down things for which one is grateful, individuals can develop a greater sense of appreciation and gratitude.
 

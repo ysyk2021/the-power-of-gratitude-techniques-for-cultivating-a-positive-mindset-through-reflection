@@ -1,5 +1,4 @@
-Chapter 6: Measuring Success in Gratitude Practice: Key Performance Indicators (KPIs) for Measuring Success
-===========================================================================================================
+# Key Performance Indicators (KPIs) for Measuring Success
 
 In this chapter, we will explore key performance indicators (KPIs) that can be used to measure success in gratitude practice. KPIs are metrics used to evaluate the success of specific goals or objectives, and they can provide valuable insight into an individual's progress and areas for improvement.
 

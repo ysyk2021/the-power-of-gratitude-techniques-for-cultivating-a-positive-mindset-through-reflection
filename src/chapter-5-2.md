@@ -1,5 +1,4 @@
-Chapter 5: Maximizing Your Happiness through Gratitude: Enhancing Relationships and Social Connections
-======================================================================================================
+# Enhancing Relationships and Social Connections
 
 In this chapter, we will explore how gratitude practice can maximize happiness by enhancing relationships and social connections.
 

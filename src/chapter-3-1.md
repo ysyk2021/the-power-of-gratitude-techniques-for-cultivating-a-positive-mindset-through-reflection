@@ -1,5 +1,4 @@
-Chapter 3: The Psychology of Gratitude: Recognizing the Impact of Negative Thinking
-===================================================================================
+# Recognizing the Impact of Negative Thinking
 
 In this chapter, we will explore how negative thinking can impact our mental health and well-being, and how cultivating gratitude can help counteract these effects.
 

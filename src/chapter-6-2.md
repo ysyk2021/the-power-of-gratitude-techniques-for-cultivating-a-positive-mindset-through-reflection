@@ -1,5 +1,4 @@
-Chapter 6: Measuring Success in Gratitude Practice: Qualitative and Quantitative Methods for Evaluation
-=======================================================================================================
+# Qualitative and Quantitative Methods for Evaluation
 
 In this chapter, we will explore qualitative and quantitative methods for evaluating success in gratitude practice. Both methods can provide valuable insights into an individual's gratitude practice and help track progress over time.
 

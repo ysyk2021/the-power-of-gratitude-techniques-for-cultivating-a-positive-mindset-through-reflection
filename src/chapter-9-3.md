@@ -1,5 +1,4 @@
-Chapter 9: Ethical Considerations in Gratitude Practice: Addressing Potential Risks and Consequences of Gratitude Practice
-==========================================================================================================================
+# Addressing Potential Risks and Consequences of Gratitude Practice
 
 In this chapter, we will discuss ethical considerations in gratitude practice, including potential risks and consequences. While gratitude practice has many benefits, it is important to consider any potential negative impacts on ourselves and others.
 

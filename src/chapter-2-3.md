@@ -1,5 +1,4 @@
-Chapter 2: Understanding Gratitude: Common Myths about Gratitude
-================================================================
+# Common Myths about Gratitude
 
 In this chapter, we will explore common myths about gratitude that can prevent individuals from fully experiencing its benefits.
 

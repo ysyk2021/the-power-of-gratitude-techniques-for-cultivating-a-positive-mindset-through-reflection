@@ -1,5 +1,4 @@
-Chapter 5: Maximizing Your Happiness through Gratitude: Improving Mental Health and Well-being
-==============================================================================================
+# Improving Mental Health and Well-being
 
 In this chapter, we will explore how gratitude can maximize happiness by improving mental health and well-being. By focusing on the positive aspects of life and expressing appreciation for them, individuals can reduce stress and anxiety, improve mood, and increase overall happiness.
 

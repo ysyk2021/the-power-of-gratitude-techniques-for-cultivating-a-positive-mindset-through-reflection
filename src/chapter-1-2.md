@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Overview of the Book
-=============================================
+# Overview of the Book
 
 In this book, we will explore the power of gratitude and how it can help individuals cultivate a positive mindset through reflection. We will discuss various techniques for practicing gratitude, the benefits of gratitude for mental health and well-being, and common myths about gratitude.
 

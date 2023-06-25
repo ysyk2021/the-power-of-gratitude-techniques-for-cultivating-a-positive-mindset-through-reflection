@@ -1,5 +1,4 @@
-Chapter 2: Understanding Gratitude: Benefits of Practicing Gratitude
-====================================================================
+# Benefits of Practicing Gratitude
 
 In this chapter, we will explore the numerous benefits that come with practicing gratitude. From increased happiness to improved relationships, gratitude can have a profound impact on our mental health and well-being.
 
