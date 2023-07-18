@@ -8,5 +8,4 @@ By exploring topics like mindfulness meditation, reflection exercises, and spiri
 
 So why wait? Start your gratitude practice today, and discover the many ways in which it can transform your life for the better.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
