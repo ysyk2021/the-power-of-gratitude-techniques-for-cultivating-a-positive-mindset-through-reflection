@@ -1,4 +1,4 @@
-Chapter 6: Reflecting on Life's Blessings and Lessons
+Reflecting on Life's Blessings and Lessons
 =====================================================
 
 In this chapter, we will explore the importance of reflecting on life's blessings and lessons as a powerful gratitude technique. We will discuss the benefits of reflection, provide guidance on how to incorporate it into your gratitude practice, and offer tips for effective reflection.

@@ -1,4 +1,4 @@
-Chapter 9: Strategies for Overcoming Challenges
+Strategies for Overcoming Challenges
 ===============================================
 
 Practicing gratitude is not always easy, and we may encounter various challenges along the way. In this chapter, we will explore effective strategies for overcoming these challenges and maintaining a consistent gratitude practice.

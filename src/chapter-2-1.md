@@ -1,4 +1,4 @@
-Chapter 2: Definition of Gratitude
+Definition of Gratitude
 ==================================
 
 Gratitude is a complex and multifaceted emotion that plays a fundamental role in cultivating a positive mindset. In this chapter, we will explore the definition of gratitude, its components, and how it can be practiced in daily life.

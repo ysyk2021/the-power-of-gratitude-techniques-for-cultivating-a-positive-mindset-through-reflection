@@ -1,4 +1,4 @@
-Chapter 6: Strengthening Personal Growth and Self-esteem
+Strengthening Personal Growth and Self-esteem
 ========================================================
 
 Practicing gratitude not only enhances our well-being but also plays a significant role in personal growth and strengthening self-esteem. In this chapter, we will explore how gratitude can be a powerful tool for personal development and building a healthy sense of self.

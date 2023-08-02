@@ -1,4 +1,4 @@
-Chapter 2: Recognizing the Impact of Negative Thinking
+Recognizing the Impact of Negative Thinking
 ======================================================
 
 Negative thinking can have a significant impact on our mindset and overall well-being. In this chapter, we will explore the effects of negative thinking and understand why it is important to recognize its influence on our lives.

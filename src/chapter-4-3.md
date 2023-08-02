@@ -1,4 +1,4 @@
-Chapter 5: Practicing Mindfulness and Presence
+Practicing Mindfulness and Presence
 ==============================================
 
 In this chapter, we will delve into the importance of practicing mindfulness and presence in cultivating a positive mindset through reflection. We will explore different mindfulness techniques and provide guidance on how to incorporate them into your gratitude practices effectively.

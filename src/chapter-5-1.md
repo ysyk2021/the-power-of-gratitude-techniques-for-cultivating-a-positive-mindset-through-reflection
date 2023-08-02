@@ -1,4 +1,4 @@
-Chapter 10: Improving Mental Health and Well-being
+Improving Mental Health and Well-being
 ==================================================
 
 Practicing gratitude has a profound impact on our mental health and overall well-being. In this chapter, we will explore how incorporating gratitude techniques into our daily lives can enhance our mental well-being and contribute to a positive mindset.

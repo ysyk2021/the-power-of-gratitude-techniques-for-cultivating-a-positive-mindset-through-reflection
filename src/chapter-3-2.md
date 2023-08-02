@@ -1,4 +1,4 @@
-Chapter 13: Exploring the Science of Gratitude
+Exploring the Science of Gratitude
 ==============================================
 
 In this chapter, we will delve into the science behind gratitude and its impact on our well-being. By understanding the empirical evidence supporting the power of gratitude, we can gain a deeper appreciation for its transformative effects on cultivating a positive mindset.

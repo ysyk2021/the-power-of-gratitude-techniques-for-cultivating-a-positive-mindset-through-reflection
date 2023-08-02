@@ -1,4 +1,4 @@
-Chapter: Benefits of Practicing Gratitude
+Benefits of Practicing Gratitude
 =========================================
 
 In this chapter, we will explore the numerous benefits of practicing gratitude and how it can cultivate a positive mindset through reflection. Gratitude is a powerful practice that involves acknowledging and appreciating the good things in life, big or small. By actively engaging in gratitude exercises and reflection, individuals can experience transformative effects on their well-being, relationships, and overall outlook on life. Understanding these benefits can motivate individuals to incorporate gratitude into their daily routines and reap the rewards it offers.
