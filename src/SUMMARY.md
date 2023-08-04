@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of Gratitude for Personal Growth](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Chapter 2: Understanding Gratitude](chapter-2.md)
   - [Definition of Gratitude](chapter-2-1.md)
   - [Benefits of Practicing Gratitude](chapter-2-2.md)
