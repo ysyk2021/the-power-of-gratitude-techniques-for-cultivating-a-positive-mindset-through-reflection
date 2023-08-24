@@ -1,5 +1,3 @@
-Key Performance Indicators (KPIs) for Measuring Success
-==================================================================
 
 In this chapter, we will explore the importance of measuring success in cultivating a positive mindset through gratitude practices. We will discuss the concept of Key Performance Indicators (KPIs) and provide guidance on how to establish and track these indicators effectively.
 

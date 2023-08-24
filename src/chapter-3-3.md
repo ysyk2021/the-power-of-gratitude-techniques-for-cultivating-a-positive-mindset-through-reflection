@@ -1,5 +1,3 @@
-Developing a Grateful Attitude
-==========================================
 
 Developing a grateful attitude is key to harnessing the transformative power of gratitude. In this chapter, we will explore practical strategies and techniques to cultivate and sustain a mindset of gratitude that positively impacts our daily lives.
 

@@ -1,5 +1,3 @@
-Chapter 6: Measuring Success in Gratitude Practice
-==================================================
 
 In this chapter, we will explore various methods for measuring success in gratitude practice. From key performance indicators (KPIs) to qualitative and quantitative methods of evaluation, we will discuss how individuals can track their progress and develop a more consistent practice of gratitude.
 

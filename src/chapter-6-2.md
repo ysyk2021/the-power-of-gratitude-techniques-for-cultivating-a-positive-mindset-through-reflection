@@ -1,5 +1,3 @@
-Qualitative and Quantitative Methods for Evaluation
-==============================================================
 
 Evaluation is a crucial step in the process of cultivating a positive mindset through reflection. It allows us to assess our progress, identify areas of improvement, and gain insights into the power of gratitude. In this chapter, we will explore both qualitative and quantitative methods for evaluating our gratitude practices and their impact on our overall well-being.
 

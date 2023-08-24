@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In this chapter, we will introduce the concept of gratitude and its importance for personal growth and development. We will provide an overview of the book and what readers can expect to learn.
 

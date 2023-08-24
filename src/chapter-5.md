@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Happiness through Gratitude
-======================================================
 
 In this chapter, we will explore how gratitude can maximize happiness by improving mental health and well-being, enhancing relationships and social connections, and strengthening personal growth and self-esteem.
 

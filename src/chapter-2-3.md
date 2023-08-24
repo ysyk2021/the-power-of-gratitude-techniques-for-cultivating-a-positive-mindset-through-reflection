@@ -1,5 +1,3 @@
-Common Myths About Gratitude
-=======================================
 
 Gratitude is a powerful practice that can transform our mindset and enhance our well-being. However, there are several common myths and misconceptions surrounding gratitude. In this chapter, we will debunk these myths and shed light on the true nature of gratitude.
 

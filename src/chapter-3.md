@@ -1,5 +1,3 @@
-Chapter 3: The Psychology of Gratitude
-======================================
 
 In this chapter, we will explore the psychology of gratitude and how it can impact our mental health and well-being. We will also discuss techniques for cultivating a grateful attitude and the science behind gratitude.
 

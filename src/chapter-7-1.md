@@ -1,5 +1,3 @@
-Common Obstacles to Gratitude Practice
-=================================================
 
 While practicing gratitude can have profound benefits, there are common obstacles that can hinder our ability to incorporate it into our daily lives. In this chapter, we will explore some of these obstacles and provide strategies for overcoming them.
 

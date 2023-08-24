@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we have explored the power of gratitude for cultivating a positive mindset through reflection. From techniques for practicing gratitude to measuring success and overcoming obstacles, we have examined various ways in which gratitude can positively impact our mental health and well-being.
 

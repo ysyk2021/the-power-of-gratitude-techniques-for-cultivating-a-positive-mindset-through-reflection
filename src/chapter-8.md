@@ -1,5 +1,3 @@
-Chapter 8: Case Studies of Successful Gratitude Practice
-========================================================
 
 In this chapter, we will explore real-life examples of individuals who have experienced happiness through gratitude practice. These case studies offer insights and inspiration for anyone seeking to cultivate a more positive mindset and improve their overall well-being.
 

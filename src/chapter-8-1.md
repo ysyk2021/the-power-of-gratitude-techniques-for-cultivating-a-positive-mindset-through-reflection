@@ -1,5 +1,3 @@
-Real-Life Examples of Individuals Who Have Experienced Happiness Through Gratitude Practice
-======================================================================================================
 
 In this chapter, we will explore real-life examples of individuals who have cultivated happiness and a positive mindset through gratitude practice. These stories serve as inspiration and demonstrate the transformative power of gratitude in various aspects of life.
 

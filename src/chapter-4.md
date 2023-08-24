@@ -1,5 +1,3 @@
-Chapter 4: Techniques for Cultivating Gratitude through Reflection
-==================================================================
 
 In this chapter, we will explore three powerful techniques for cultivating gratitude through reflection: keeping a gratitude journal, reflecting on life's blessings and lessons, and practicing mindfulness and presence. By incorporating these techniques into daily life, individuals can develop a greater sense of appreciation and gratitude.
 

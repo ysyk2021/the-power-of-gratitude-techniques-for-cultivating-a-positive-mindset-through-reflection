@@ -1,5 +1,3 @@
-Importance of Gratitude for Personal Growth
-=======================================================
 
 Gratitude plays a vital role in personal growth and development. In this chapter, we will delve into the significance of gratitude as a catalyst for personal transformation and explore how it contributes to our overall growth and well-being.
 

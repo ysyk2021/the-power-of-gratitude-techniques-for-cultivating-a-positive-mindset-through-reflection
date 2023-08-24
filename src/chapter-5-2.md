@@ -1,5 +1,3 @@
-Enhancing Relationships and Social Connections
-=========================================================
 
 Gratitude not only improves our individual well-being but also has a profound impact on our relationships and social connections. In this chapter, we will explore how practicing gratitude can enhance our relationships and foster deeper connections with others.
 

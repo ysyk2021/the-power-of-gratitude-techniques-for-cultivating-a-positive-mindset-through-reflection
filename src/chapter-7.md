@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Obstacles to Gratitude Practice
-=====================================================
 
 In this chapter, we will explore common obstacles that individuals may face in their gratitude practice and strategies for overcoming these challenges. By identifying and addressing these obstacles, individuals can develop a more consistent practice of gratitude and reap the benefits for their mental health and well-being.
 
@@ -29,5 +27,4 @@ Conclusion
 ----------
 
 Obstacles to gratitude practice are common, but they can be overcome with mindfulness, prioritization, accountability, self-compassion, and habit formation. By identifying and addressing these obstacles, individuals can develop a more consistent practice of gratitude and reap the benefits for their mental health and well-being. With continued practice and reflection, gratitude can become a habitual way of thinking and lead to a more fulfilling and satisfying life.
-
 

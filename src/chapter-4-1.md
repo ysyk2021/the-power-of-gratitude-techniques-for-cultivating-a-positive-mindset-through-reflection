@@ -1,5 +1,3 @@
-Keeping a Gratitude Journal
-======================================
 
 Gratitude journaling is a powerful technique for cultivating a positive mindset through reflection. In this chapter, we will explore the benefits of keeping a gratitude journal and provide practical tips on how to establish and maintain this practice effectively.
 

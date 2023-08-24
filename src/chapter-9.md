@@ -1,5 +1,3 @@
-Chapter 9: Ethical Considerations in Gratitude Practice
-=======================================================
 
 In this chapter, we will explore ethical considerations in gratitude practice. By understanding ethical guidelines and standards, balancing personal and interpersonal interests, and addressing potential risks and consequences, individuals can cultivate a positive mindset through reflection while also maintaining a sense of integrity and respect for others.
 
@@ -22,5 +20,4 @@ Conclusion
 ----------
 
 Ethical considerations are essential in gratitude practice. This includes understanding ethical guidelines and standards, balancing personal and interpersonal interests, and addressing potential risks and consequences. By practicing gratitude with these ethical considerations in mind, individuals can cultivate a positive mindset through reflection while also maintaining a sense of integrity and respect for others.
-
 

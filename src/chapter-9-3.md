@@ -1,5 +1,3 @@
-Addressing Potential Risks and Consequences of Gratitude Practice
-============================================================================
 
 In this chapter, we will examine the potential risks and consequences associated with gratitude practice. While cultivating a positive mindset through gratitude can bring numerous benefits, it is important to be aware of potential challenges and take proactive steps to address them.
 

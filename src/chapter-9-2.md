@@ -1,5 +1,3 @@
-Balancing Personal and Interpersonal Interests
-=========================================================
 
 In this chapter, we will explore the importance of balancing personal and interpersonal interests when practicing gratitude and cultivating a positive mindset. Finding equilibrium between self-care and consideration for others is essential for maintaining healthy relationships and fostering a harmonious environment.
 

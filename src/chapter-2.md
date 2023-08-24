@@ -1,5 +1,3 @@
-Chapter 2: Understanding Gratitude
-==================================
 
 In this chapter, we will delve deeper into the concept of gratitude and explore its various definitions, benefits, and common myths.
 
