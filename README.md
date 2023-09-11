@@ -1,3 +1,6 @@
+# The Power of Gratitude: Techniques for Cultivating a Positive Mindset through Reflection
+
+Book Link: [https://zhengpublishing.com/the-power-of-gratitude-techniques-for-cultivating-a-positive-mindset-through-reflection/](https://zhengpublishing.com/the-power-of-gratitude-techniques-for-cultivating-a-positive-mindset-through-reflection/)
 
 In our busy and often stressful lives, it's easy to take the good things for granted and focus on the challenges and frustrations that we face each day. But what if we could shift our perspective and cultivate a more positive mindset by focusing on the things we're grateful for? That's the power of gratitude.
 
